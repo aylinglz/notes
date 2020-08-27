@@ -23,3 +23,6 @@ another https://brand.great.gov.uk/BMS/search/?q=infographic&p=2&assetId=7659&sh
  https://drive.google.com/drive/folders/1aAmW7esq3kmejM40qY3LNnvwawMxCyWw VACCINE DIPLOMACY
 
 https://we.tl/t-nfEQ3IHL2O 
+
+https://drive.google.com/file/d/1T47bCTzi5hCmgif-Ct9AjVlaTSQd2FzU/view?usp=sharing 
+
